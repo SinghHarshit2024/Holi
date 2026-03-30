@@ -1,2 +1,2 @@
-# Happy Holi from Harshit Singh
+# Happy Holi 
 
